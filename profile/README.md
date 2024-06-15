@@ -1,1 +1,1 @@
-![banner](https://github.com/Volkadot/.github/assets/61007475/bcda1c6f-e3d4-45f3-ab30-d6f6e2385542)
+![Banner](https://github.com/Volkadot/.github/assets/61007475/89f4b869-b36b-4ffd-ba61-13d9fcec6b91)
